@@ -27,3 +27,6 @@
 
 ## star 趋势
 ![](https://starchart.cc/Ysnsn/mimotion.svg)
+
+
+![](https://starchart.cc/Ysnsn/mimotion.svg)![](https://starchart.cc/Ysnsn/mimotion.svg)
